@@ -10,8 +10,8 @@ When I'm not working, I'm an avid video gammer, LEGO builder, and life-long phot
 
 Currently, this site is still under construction, but...
 
-If you're interested in me professionally, connect with me on [Linkedin](https://www.linkedin.com/in/kacquah/).
+If you're interested in me professionally, connect with me on [Linkedin](https://www.linkedin.com/in/kacquah/) or Twitter [@KoolJBlack](https://twitter.com/KoolJBlack).
 
-If you're interested in my extensive photography, head on over to [photo.kojoacquah.net](http://photo.kojoacquah.net) or follow me on Instagram @ [ka_fto](https://www.instagram.com/ka_fto/). 
+If you're interested in my extensive photography, head on over to [photo.kojoacquah.net](http://photo.kojoacquah.net) or follow me on Instagram [@ka_fto](https://www.instagram.com/ka_fto/). 
 
 
